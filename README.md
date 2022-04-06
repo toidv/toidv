@@ -1,3 +1,3 @@
-_**We don't have to do all of it alone. We were never meant to.**_
+_**Winning isn't everything.. It's the only thing.**_
 
-Brene Brown
+Vincent van Gogh
