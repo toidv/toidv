@@ -1,3 +1,3 @@
-_**Do not be afraid to give up the good for the great.**_
+_**Vision without action is daydream. Action without vision is nightmare..**_
 
-Kenny Rogers
+Japanese Proverb
