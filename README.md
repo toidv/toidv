@@ -1,3 +1,3 @@
-_**Do the best you can until you know better. Then when you know better, do better.**_
+_**All courses of action are risky, so prudence is not in avoiding danger (it's impossible), but calculating risk and acting decisively. Make mistakes of ambition and not mistakes of sloth. Develop the strength to do bold things, not the strength to suffer.**_
 
-Maya Angelou
+Niccolo Machiavelli
