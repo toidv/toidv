@@ -1,3 +1,3 @@
-_**It isn't the mountains ahead to climb that wear you out; it's the pebble in your shoe.**_
+_**We lose ourselves in the things we love. We find ourselves there, too.**_
 
-Mohamad Ali
+Dale Patridge
