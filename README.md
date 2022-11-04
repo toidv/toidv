@@ -1,3 +1,3 @@
-_**A show of confidence raises the bar**_
+_**It wasn't raining when Noah built the ark..**_
 
-Lorii Myers
+Howard Ruff
