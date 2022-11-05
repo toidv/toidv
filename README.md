@@ -1,3 +1,3 @@
-_**It wasn't raining when Noah built the ark..**_
+_**Stress is like a pulse, if you have it you are alive.**_
 
-Howard Ruff
+Steve Maraboli
