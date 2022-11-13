@@ -1,3 +1,3 @@
-_**If I work as hard as I can, I wonder how much I can do in a day?**_
+_**Don't count the days; make the days count.**_
 
-Ezra Taft Benson
+Mohamad Ali
